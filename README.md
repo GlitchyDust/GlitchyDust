@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GlitchyDust
 - 👀 I’m interested in Game Development, Video Games, Music, Art and so much more
-- 🌱 I’m currently learning Game Maker Studio 2
+- 🌱 I’m currently Gaming and not developing anything ATM
 - 💞️ I'm not looking for any collaboration for now
 - 📫 No where to reach me for now
 
